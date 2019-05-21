@@ -16,6 +16,12 @@ InClube ALL Huawei InAmerica Factory          </br>
 InClube ALL Nuclear-powered submarine In China South Sea </br>
 包括南海核潜艇  </br>
 
+ALL IN
+全部
+
+whole recalling
+全部召回
+
 -------------------------------- 
 
 请全部召回,及全部海外人士,全部回国,紧急会议         </br>
